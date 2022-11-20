@@ -1,1 +1,1 @@
-# Engineer_salary
+![](images/elon_fires_employees.jpg)
